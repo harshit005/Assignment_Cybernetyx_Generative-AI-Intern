@@ -1,0 +1,1 @@
+# Assignment_Cybernetyx_Generative-AI-Intern
